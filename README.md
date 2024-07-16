@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Dvanni
-- 👀 I’m interested in Coding
+- 👀 I’m interested in BPO Metrics 
 - 🌱 I’m currently learning Python
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ANYTHING
 - 📫 How to reach me IG/LinkedIn 
 - 😄 Pronouns: She/Her
   
